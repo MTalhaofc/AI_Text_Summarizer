@@ -87,7 +87,7 @@
 
 **Muhammad Talha**
 📧 [talha0750@gmail.com](mailto:talha0750@gmail.com)
-🔗 [GitHub](https://github.com/MTalhaofc) • [LinkedIn](https://linkedin.com/in/muhammad-talha-offofc)
+🔗 [GitHub](https://github.com/MTalhaofc) • [LinkedIn](https://linkedin.com/in/mtalhaofc)
 
 ---
 
